@@ -12,13 +12,13 @@ DSBA student at [Florida Polytechnic University](https://www.floridapoly.edu) cu
 
 I am _passionate about_: 
 
--working with computers
+-Working with computers
 
 -Martial Arts
 
 -Video games and ttrpgs
 
--weight lifting
+-Weight lifting
 
 ***
 
