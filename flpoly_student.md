@@ -18,6 +18,7 @@ I am _passionate about_:
 
 -Video games and ttrpgs
 
+-weight lifting
 
 ***
 
